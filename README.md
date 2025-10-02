@@ -1,1 +1,2 @@
-# extra-is-too-strong
+# Extra is Too Strong
+Tous les jours, on me posait la même question, mais la réponse ne changeait jamais. Les seules choses qui me restaient étaient les regards compatissants et les versements de l’assurance. Et la cruelle réalité d’être à moitié paralysé. On dit que Dieu ne vous donne que des épreuves que vous pouvez supporter, mais j’aurais préféré mourir. C’est alors que je me suis réveillé… [C’est le monde du « Magicien qui domine le monde »] [À partir de maintenant, vous devez vivre comme le personnage de « Mord Vernars »] Je suis devenu un figurant dans le roman que je lisais pendant la nuit.
